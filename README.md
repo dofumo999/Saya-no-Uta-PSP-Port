@@ -1,3 +1,7 @@
+FOR ARCHIVAL PURPOSE!!
+
+
+
 The game might crash and stop running. ( Happens when after the what saya and fumiori do to yoh)
 
 HOW TO FIX:
